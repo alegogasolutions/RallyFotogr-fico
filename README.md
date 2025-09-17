@@ -1,1 +1,3 @@
 # RallyFotogr-fico
+
+DESCARGE LA APP DEL ENLACE DE DESCARGA
